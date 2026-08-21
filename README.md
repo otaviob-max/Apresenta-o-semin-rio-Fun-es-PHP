@@ -15,6 +15,3 @@
 2. Murilo H N.º 24
 3. Rafael G N.º 27
 4. Otavio M N.º 32
-
-
- 
